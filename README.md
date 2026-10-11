@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUCE031117HVZRHDA7
+CUCE031117HVZRHDA7
